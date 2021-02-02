@@ -10,4 +10,4 @@ I am technically sound in using Python, SQL, Tableau, Advanced-excel and VBA.
 
 📫 You can reach me at - arya.akhil.2019@mitb.smu.edu.sg
 
-⚡ I love to Jam in musical sessions - I'll play guitar, you can play the rest!
+⚡ I love to Jam in musical sessions - I'll play the guitar, you can play the rest!
